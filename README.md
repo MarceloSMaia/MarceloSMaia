@@ -1,0 +1,7 @@
+- 👋 Oi, eu sou o Marcelo Maia.
+- 👀 Estou interessado em aprender programação.
+- 🌱 No momento estou juntando dinheiro para comprar um notebook.
+- 💞️ Gosto de Ciência e tecnologia.
+- 📫 Entre em contato pelo whatsapp+5577998240125 ou pelo e-mail warcelowaia@gmail.com
+- 😄 Ele/Dele
+- ⚡ Um jovem adulto apaixonado pela programação e que busca adentrar com a alma nesse universo.
